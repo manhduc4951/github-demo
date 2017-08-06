@@ -1,2 +1,2 @@
-# github-demo
-A very emotional repository
+# All content has been deleted
+
